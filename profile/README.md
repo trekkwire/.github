@@ -2,7 +2,7 @@
 
 🙋‍♀️ **About Us**
 
-Trekkwire is an on-demand travel platform connecting travelers with passionate local guides. Our mission is to make travel enjoyable while promoting accessible tourism and cultural exchange.
+Trekkwire is an on-demand travel platform connecting travelers with passionate local guides. Our mission is to make travel enjoyable while promoting accessible tourism, cultural exchange and supporting local economies. 
 
 🌈 **How to Contribute**
 
